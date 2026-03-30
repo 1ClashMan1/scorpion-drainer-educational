@@ -19,5 +19,7 @@ No monthly fees. No bullshit.
 
 Only for real players.
 
+DM: @ionicstarops
+
 ⚡ Don`t dm if u brokie. Working for 50% upfont
 ⚡ Don't dm to waste my time because i don't entertain time waster.
